@@ -2,4 +2,4 @@
 - 👀 I’m interested in learn How to code
 - 🌱 I’m currently learning on a bootcamp.
 - 💞️ I’m looking to collaborate on anything that help me to learn how to code
-- 📫 How to reach me mi email:pablosuazopsr@gmail.com
+- 📫 How to reach me my email:pablosuazopsr@gmail.com
